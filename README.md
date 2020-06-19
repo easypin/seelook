@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+Ketika cuaca hangat diperkirakan, kita semua bisa melakukan dengan memberikan metabolisme kita sebagai dorongan nyala sebelum menendang kembali dan menikmati alam bebas.
 
-You can use the [editor on GitHub](https://github.com/easypin/seelook/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Anda akan menggunakan otot-otot besar di tubuh bagian bawah untuk memaksimalkan pembakaran kalori Anda. Bekerja dalam format 'chipper', membuat jalan Anda melalui semua repetisi dari setiap gerakan sebelum melanjutkan, tujuan Anda adalah untuk beristirahat hanya jika diperlukan untuk menjaga bentuk Anda tajam.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Tangkapan? Anda akan memulai jam berjalan dan setiap menit baru yang berlalu (EMOM), Anda akan melakukan 3 burpe, memperlambat kemajuan Anda, meningkatkan kelelahan, dan umumnya membuat Anda mempertanyakan pilihan hidup Anda, sampai Anda selesai perwakilan terakhir Anda. Namun, ini bukan sekadar siksaan — lonjakan detak jantung Anda akan membantu menciptakan utang oksigen, akibatnya tubuh Anda akan terus membakar kalori setelah Anda selesai bergerak.
 
-### Markdown
+"Anda harus bermain dengan kekuatan Anda," kata editor kebugaran Men's Health UK Andrew Tracey. "Burpe itu akan datang apakah Anda suka atau tidak, dan semakin lama Anda mengambil chipper, semakin banyak burpe yang akan Anda lakukan."
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Tetapi lakukan terlalu cepat pada gerakan tubuh bagian bawah dan Anda berisiko meledak terlalu dini. Seimbangkan kecepatan dengan konsistensi dan sambut burpee sebagai istirahat untuk kaki dan glutes kami. Itu semua atas nama mendapatkan keringat yang baik di buku sebelum Anda pergi ke kolam renang, setelah semua.
 
-```markdown
-Syntax highlighted code block
+Mulai dari nol (maaf) dan setiap menit setelahnya, jongkok dan letakkan kedua tangan di lantai di antara kaki Anda. Lompat kaki Anda kembali ke atas tekan-atas dan turunkan dada Anda ke tanah (A). Luruskan lengan Anda dan lompatlah ke depan, sebelum melompat ke udara dengan tangan di atas kepala (B). Setelah selesai 3, ambil dari tempat Anda tinggalkan.
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/easypin/seelook/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Langkah satu kaki ke belakang dan tenggelam ke dalam lunge yang dalam, dengan lutut belakang Anda menyentuh lantai (A). Meledak ke atas, menukar kaki di udara (B) untuk mendarat dalam posisi terjang dengan kaki berlawanan ke depan. Langkah mundur ke posisi berdiri yang tinggi. Ini adalah satu perwakilan.
