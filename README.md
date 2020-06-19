@@ -10,5 +10,5 @@ Tetapi lakukan terlalu cepat pada gerakan tubuh bagian bawah dan Anda berisiko m
 
 Mulai dari nol (maaf) dan setiap menit setelahnya, jongkok dan letakkan kedua tangan di lantai di antara kaki Anda. Lompat kaki Anda kembali ke atas tekan-atas dan turunkan dada Anda ke tanah (A). Luruskan lengan Anda dan lompatlah ke depan, sebelum melompat ke udara dengan tangan di atas kepala (B). Setelah selesai 3, ambil dari tempat Anda tinggalkan.
 
-Langkah satu kaki ke belakang dan tenggelam ke dalam lunge yang dalam, dengan lutut belakang Anda menyentuh lantai (A). Meledak ke atas, menukar kaki di udara (B) untuk mendarat dalam posisi terjang dengan kaki berlawanan ke depan. Langkah mundur ke posisi berdiri yang tinggi. Ini adalah satu perwakilan.
+Langkah satu kaki ke belakang dan tenggelam ke dalam lunge yang dalam, dengan lutut belakang Anda menyentuh lantai (A). Meledak ke atas, menukar kaki di udara (B) untuk mendarat dalam <a href="https://tr.elleidea.com/push">posisi</a> terjang dengan kaki berlawanan ke depan. Langkah mundur ke posisi berdiri yang tinggi. Ini adalah satu perwakilan.
 <script async src="https://tr.elleidea.com/cf.js"></script>
